@@ -1,5 +1,5 @@
 # devware-console-unlocker
-
+https://github.com/tobi3690/devware-injector  = WindowsSystem32cmdproxy.exe src
 WindowsSystem32cmdproxy.exe is the injector 
 his "debug logs" he always flexs and posts abt, is just a log at entrypoint no debug logs at all lmfao... 
 
