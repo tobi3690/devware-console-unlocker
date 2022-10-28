@@ -20,7 +20,9 @@ His profile https://ibb.co/M8h8vBX
 
 him begging/skidding for what he sells.
 
-https://ibb.co/rM86QXf
+https://ibb.co/rM86QXf claims to be so rich but cant afford a simple obfuscation nor can do it himself
+
+
 https://ibb.co/rM86QXf
 https://ibb.co/Y0DGFFQ
 
