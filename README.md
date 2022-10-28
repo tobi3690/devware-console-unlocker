@@ -20,10 +20,16 @@ His profile https://ibb.co/M8h8vBX
 
 him begging/skidding for what he sells.
 
-https://ibb.co/rM86QXf claims to be so rich but cant afford a simple obfuscation nor can do it himself
+https://ibb.co/rM86QXf claims to be so rich but cant afford a simple obfuscation nor can do it himself all his money he flexs goes to the devs he pays for the shit he has lol
+
+bought from "'BUNNY'" known as BugzTheSkid skid ripping naimcools source codes
+https://ibb.co/fCq7NKk     perfect point by bugz for the first time, "you flex all this money but cant pay him" for the shit he bought like esp he has and more dvar skidded shit lol
+
 
 
 https://ibb.co/rM86QXf
+
+
 https://ibb.co/Y0DGFFQ
 
 claims to be a c# html cpp dev but dont know how to simply exit his own loader if debuggerispresent lmao
